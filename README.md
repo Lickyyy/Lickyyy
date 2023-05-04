@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/854765169783472168/1093507997705195652/BzzThe18Th_banner.png)
+
 
 
 
