@@ -4,4 +4,4 @@ Hi im Licky
 
 + trying to learn C#
 
-+ [My Discord Server.](discord.io/Lickyyy)
++ My Discord Server ( discord.io/Lickyyy )
